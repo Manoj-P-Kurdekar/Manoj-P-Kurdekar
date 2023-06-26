@@ -17,6 +17,8 @@
 
 - 📫 How to reach me **manojpkurdekar@gmail.com**
 
+- - 📄 Know about my experiences [https://drive.google.com/file/d/1KA23E0gepyIQjdLFWjIjTiKphdg7pFAD/view?usp=drive_link](https://drive.google.com/file/d/1KA23E0gepyIQjdLFWjIjTiKphdg7pFAD/view?usp=drive_link)
+
 - ⚡ Fun fact **I love watching Anime👀🎬, Doing DIY things,....**
 
 <h3 align="left">Connect with me:</h3>
