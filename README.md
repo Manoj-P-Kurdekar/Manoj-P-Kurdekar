@@ -1,3 +1,5 @@
+![logo](https://github.com/Manoj-P-Kurdekar/Manoj-P-Kurdekar/blob/main/Navy%20And%20White%20Geometric%20Technology%20%20LinkedIn%20Banner.png)
+
 <h1 align="center">Hi 👋, I'm Manoj P Kurdekar</h1>
 <h3 align="center">A passionate Data Scientist from India</h3>
 
